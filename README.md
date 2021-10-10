@@ -1,2 +1,0 @@
-# Harshada
-Task 1
